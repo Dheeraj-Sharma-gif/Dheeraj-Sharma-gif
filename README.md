@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working on **AI/ML and NLP projects**
 
-- 📫 How to reach me **dheerajsharma8420@gmail.com**
+- 📫 How to reach me **dheerajsharma4280@gmail.com**
 
 - ⚡ Fun fact **I think I believe in learning together**
 
